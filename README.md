@@ -1,4 +1,4 @@
-![MasterHead](https://github.com/AnandTiwary20/AnandTiwary20/blob/main/4108628.png?raw=true)
+![MasterHead](https://github.com/AnandTiwary20/AnandTiwary20/blob/main/4108628.png?)
 
 
 # 💫 Know Me?:
